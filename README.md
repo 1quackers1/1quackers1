@@ -4,7 +4,7 @@
 - tech geek 💻
 - certified güey 🇲🇽
 - possibly hyperactive 🤪
-- black belt since <t:1705788660:R> 🥋
+- black belt since January 20, 2024 (5:11PM EST) 🥋
 - can’t forget spotify 💪🎧
 
 # CONTACT INFO
